@@ -4,7 +4,7 @@
 ![Capture d’écran (281)](https://github.com/ThunderXelor96/Winbest_plumber_II/assets/114176196/c9869b94-6c0c-421b-8107-c0d0f58cd545)
 ![Capture d’écran (282)](https://github.com/ThunderXelor96/Winbest_plumber_II/assets/114176196/f125d969-f730-4203-bc48-b412b0a5b726)
 ![Capture d’écran (284)](https://github.com/ThunderXelor96/Winbest_plumber_II/assets/114176196/c045be25-58be-411d-8e1b-a67cf91412d3)
-![Capture d’écran (285)](https://github.com/ThunderXelor96/Winbest_plumber_II/assets/114176196/22d444b9-04cf-4882-bcff-32ef9e50b2c4)
+
 ![Capture d’écran (286)](https://github.com/ThunderXelor96/Winbest_plumber_II/assets/114176196/82b5eb26-72eb-480f-a77d-a113d8fc2b21)
 ![Capture d’écran (287)](https://github.com/ThunderXelor96/Winbest_plumber_II/assets/114176196/f6708444-3d47-4290-8692-97d25bf22f41)
 ![Capture d’écran (288)](https://github.com/ThunderXelor96/Winbest_plumber_II/assets/114176196/eb17140c-9722-49ea-82eb-e5d904046892)
